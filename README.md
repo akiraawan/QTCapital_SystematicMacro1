@@ -1,0 +1,1 @@
+# QTCapital_SystematicMacro1
